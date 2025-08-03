@@ -33,7 +33,7 @@ Developed by :
 Israth Chowdhury | Mehzebin Chowdhury
 
 Feel free to connect!
-[chowdhuryisrath32@gmail.com]
+[chowdhuryisrath32@gmail.com] / [mehzebin.meem@gmail.com]
 
 ---
 
